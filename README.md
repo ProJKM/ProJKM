@@ -32,7 +32,7 @@
 
 ---
 
-- Github /  [https://github.com/ProJKM](https://github.com/ProJKM)
+- Link to Detail /  [https://ludicrous-door-48d.notion.site/f44a03b7b0034b07b1af971b3d96d15a](https://notion.com/)
 
 ---
 
