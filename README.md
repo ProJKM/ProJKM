@@ -32,7 +32,7 @@
 
 ---
 
-- Link to Detail /  [https://notion.com/](https://ludicrous-door-48d.notion.site/f44a03b7b0034b07b1af971b3d96d15a)
+- Link to Detail /  [https://notion.com](https://ludicrous-door-48d.notion.site/f44a03b7b0034b07b1af971b3d96d15a)
 
 ---
 
